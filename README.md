@@ -1,1 +1,1 @@
-# resumes from James K Smith
+# resumes for James K Smith
